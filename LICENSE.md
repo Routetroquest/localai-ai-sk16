@@ -1,4 +1,4 @@
-# 
+# Meilleur LocalAI préréglages. Avec prêt pour l'entreprise et formation de modèles personnalisés — optimisé pour des performances et une efficacité maximales.
 
 
 
